@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lessidowload
+- 👀 I’m interested in learning C++ in the future.
+- 🌱 I’m currently learning Javascript and Discord.js
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: lessidowloadba@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: Am a roblox British Army Moderator.
