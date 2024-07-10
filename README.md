@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: lessidowloadba@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Am a roblox British Army Moderator.
+- ⚡ Fun fact: I'm a roblox British Army Moderator.
